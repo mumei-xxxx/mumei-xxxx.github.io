@@ -1,14 +1,15 @@
 ## 無名隱者(mumei-xxxx)
 
-連絡先
+GitHub<br>
+https://github.com/mumei-xxxx
 
-メール:
-lesilluminations0✦gmail.com
-
-(✦ → @ へ)
-
-Twitter  
+Twitter<br>
 https://twitter.com/mumei_yinja
 
-Zenn  
+Zenn<br>
 https://zenn.dev/purenium
+
+連絡先<br>
+メール:<br>
+lesilluminations0✦gmail.com<br>
+(✦ → @ へ)
