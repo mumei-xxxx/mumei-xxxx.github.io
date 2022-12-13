@@ -7,8 +7,8 @@ lesilluminations0✦gmail.com
 
 (✦ → @ へ)
 
-Twitter
+Twitter  
 https://twitter.com/mumei_yinja
 
-Zenn
+Zenn  
 https://zenn.dev/purenium
