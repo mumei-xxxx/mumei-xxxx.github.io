@@ -7,7 +7,7 @@ Zenn<br>
 [https://zenn.dev/purenium](https://zenn.dev/purenium){:target="_blank"}
 
 Twitter<br>
-[https://twitter.com/mumei_yinja](https://twitter.com/SeieiSogen){:target="_blank"}
+[https://twitter.com/SeieiSogen](https://twitter.com/SeieiSogen){:target="_blank"}
 
 Contact<br>
 Mail:<br>
